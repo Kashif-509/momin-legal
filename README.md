@@ -1,4 +1,4 @@
-# Momin public legal information
+# Suhbah public legal information
 
 Publisher: Muhammad Kashif
 
